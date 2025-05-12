@@ -1,4 +1,4 @@
-# Stork_Bot# 🌅 Stork Bot [v1.9.0]
+# Stork_Bot 🌅 Stork Bot [v1.9.0]
 
 ![Demo](https://i.imgur.com/uW631d1.jpeg)
 
